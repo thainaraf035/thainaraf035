@@ -1,5 +1,5 @@
-Boas vindas ao meu perfil 💙💙
+A Guerra do Amanhã
 
-Estou estudando na Alura.
-Estou me desenvolvendo na linguagem JavaScript.
-Meu nome é Thainara.
+https://cdn.comunhao.com.br/wp-content/uploads/2021/07/16183717/a-guerra-do-amanha.jpg
+
+https://www.youtube.com/watch?v=JG3xSXZDQo4
